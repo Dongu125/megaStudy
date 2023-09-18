@@ -1,7 +1,10 @@
 # megaStudy
 
 
-[구글] 
+[네이버] (https://www.naver.com/)
 
 
 ㅋㅋㅋ
+
+
+
